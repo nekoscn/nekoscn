@@ -1,5 +1,5 @@
 - 👋 Hi, This is nekochan from @nekoscn
-- 👀 I’m interested in anime and cute
+- 👀 I’m interested in anime and cute things
 - 🌱 I’m currently learning japanese
 - 💞️ I’m looking to collaborate on cloud, im learning gcp as of now
 - 📫 How to reach me, you can go to twitter.com/nekoscn
